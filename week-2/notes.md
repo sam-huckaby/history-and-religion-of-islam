@@ -198,21 +198,21 @@ A Muslim will normally be told and believe that the Ka'ba and Qur'an as we have 
 Muslim Scholars will often argue that Muhammad did not interact with Christians at all
 There are two places in the Islamic texts that specifically refer to Muhammad interacting with Christians though
 1. Waraqa ibn Nawfal was "Christian" and was Khadija's cousin who helped Muhammad understand his early revelations
-1. - Ibn Ishaq's account specifically states that Khadija took Muhammad to Waraqa ibn Nawfal
-1. - Waraqa cried "holy holy holy!" and stated that Muhammad had received the Law from the Lord
-1. - Volume 1, Book 1, Number 3 - Sahih Bukhari
-1. - Muhammad not being able to read also means he needs (per the biography) Waraqa
-1. - The "divine inspiration" paused when Waraqa died and Muhammad was anxious about that
-1. Bahira - the Christian monk that identified Muhammad as a prophet
-1. - Bahira's story found in Muslim traditions written more than a century after the events happened
-1. - This story is actually found in earlier texts by Christians!
-1. - Bahira identifies the seal of prophethood on Muhammad's shoulder
-1. - - Islam completes and corrects Christianity
-1. - - Muhammad is the fulfillment of biblical prophets
-1. - - Muhammad is a part of the struggle between paganism and monotheism
-1. - Possible Critical interpretations of Bahira
-1. - - Bahira taught Muhammad the truth about God (Christianity) but Muhammad distorted and mistook what he was taught
-1. - - Bahira could also have just been an Arian, a Nestorian, a Jacobite, or some other kind false witness
+- Ibn Ishaq's account specifically states that Khadija took Muhammad to Waraqa ibn Nawfal
+- Waraqa cried "holy holy holy!" and stated that Muhammad had received the Law from the Lord
+- Volume 1, Book 1, Number 3 - Sahih Bukhari
+- Muhammad not being able to read also means he needs (per the biography) Waraqa
+- The "divine inspiration" paused when Waraqa died and Muhammad was anxious about that
+2. Bahira - the Christian monk that identified Muhammad as a prophet
+- Bahira's story found in Muslim traditions written more than a century after the events happened
+- This story is actually found in earlier texts by Christians!
+- Bahira identifies the seal of prophethood on Muhammad's shoulder
+- - Islam completes and corrects Christianity
+- - Muhammad is the fulfillment of biblical prophets
+- - Muhammad is a part of the struggle between paganism and monotheism
+- Possible Critical interpretations of Bahira
+- - Bahira taught Muhammad the truth about God (Christianity) but Muhammad distorted and mistook what he was taught
+- - Bahira could also have just been an Arian, a Nestorian, a Jacobite, or some other kind false witness
 
 These two people prove that Muhammad came in contact with AT LEAST two Christians, and they were early and formative interactions.
 
