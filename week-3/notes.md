@@ -105,4 +105,42 @@ This is the Hijra when Muhammad emigrates to Medina
 This designates "year 1" for Muslims
 This also begins the period of Muhammad's raids to recapture Mecca
 
+## Lecture 11
+
+### Episodes in Islamic History
+
+#### Hijra / The Immigration (from Mecca to Medina)
+This event is a very important event in Islam because it provides us with a delimiter in Muslim history, a point of pivot
+Muhammad and Muslims will become very strong while they are in Medina
+Mecca was a period of preparation
+Medina is a period of elevation and strength and advancement of the Muslim community
+This constitutes "year 1" in Islam which is why you will usually see two dates in Islamic scholarship
+Muslim tried first to immigrate to Ta'if, but was rejected
+After the satanic verses incident, some of Muhammad's followers emmigrate to Ethiopia and didn't want to come back
+Some of his uncles lived in Medina
+Muhammad acted as an arbiter or a statesman while he was there, learning and developing these skills
+Three main groups in Medina: Proponents (Muslims), Emigrants, and Hypocrites (Jewish)
+Medina was previously called Yathrib
+
+#### Muhammad at Medina
+The constitution of Medina, one of the most significant document that has survived from the time of Muhammad
+There is actually not enough evidence to prove that this constitution was __actually__ written in the time of Muhammad
+It deals with religious tolerance and tribal conflicts
+It created a new Umma (community) shortly after his arrival in Medina
+Aus and Khazraj were still pagan but were rapidly becoming Muslims
+The three Jewish tribes were included in this treaty/constitution (Banu Qainuqa, Banu Nadhir, Banu Quraidha)
+We only have Muslim sources that tell us about this constitution, no outside sources
+goals of the constitution:
+- Outline rights and duties of groups
+- how Muslim community interacts with others on the basis of religion
+- does not recognize Christians, only Jews
+- Jews were mostly allied with Muslims
+- Sets up the ideal model for an Islamic state
+Only in Muhammad's biography and Ubayd's Book of State Finance, which are Muslim sources
+There are theories that this is several treaties written at several different times and compiled at a later time
+History following the establishment of the constitution suggests that this constitution did not do very much for any kind of religious freedom
+Even today, Christians are not and cannot be equal with Muslims in Islamic countries and cultures
+according to Muslim histories, one year after the constitution was enacted, Muhammad approached one of the Jewish tribes and demanded they convert to Islam -- they refused
+Muhammad then ordered a siege of that tribe, and systematically took care of the other tribes as well in the years to come
+
 
