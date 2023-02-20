@@ -144,3 +144,91 @@ according to Muslim histories, one year after the constitution was enacted, Muha
 Muhammad then ordered a siege of that tribe, and systematically took care of the other tribes as well in the years to come
 
 
+## Lecture 12
+
+### Muhammad at Medina - part 2
+
+Time in Mecca and time in Medina is a key designator in the Qur'an
+This makes the Sirah much more important, because it is the biography of Muhammad, and is useful for making these connections
+The Muslim community in Medina begins to launch raids (technically offensives) against the polytheists in Mecca
+Conservative Muslims will generally hold to Muhammad's raids always being defensive and to spread Islam, but historical evidence is not really in favor of this view
+
+#### The Battle of Badr
+Happens in the second year after the Hijra, and was a key victory
+There were smaller successful raids before Badr, but they are not discussed as often
+The battle of Badr marks the first battle that Muhammad witnesses himself, previously he only commissioned raids, but was not present
+The writings on Muhammad's life is often titled as "raids" because Muhammad's warrior status is seen as desireable
+Raids are a large part of pre-Islamic life, and Muhammad continues this tradition as he himself commissions raids
+This is difficult for modern-day Muslims, because wars and raids are not often seen as good, so raiding to bring Islam makes little sense
+Historically using warfare for proselytizing is not very effective
+The raids prior to Badr were commissioned by Muhammad against the Quraysh under the supervision of trustworthy Muslim leaders
+These raids were originally not described as proclimation raids (for Islam) but that is how tradition slowly has moved to frame them
+Often, these raids were for taking loot from caravans of rivals (such as the Quraysh) to fund the Medinan community
+The key idea being proposed by these traditions is that Allah is at work in the Umma (Muslim community), which is proved by their success in raids and warfare
+The desire historically was to show the Umma as being strong and successful, thus the saying that "Islam spreads by the sword"
+These early raids had 5 key purposes:
+- Extending and expanding the Umma by terrifying the Meccans
+- Enriching the Umma
+- Showing the growth of the power of the supposedly Islamic stronghold
+- Training and preparing the members of the Umma (Ansar and Muhajirun)
+- Weakening the Quraysh by attacking their central power (trade)
+Muhammad spent a lot of time managing the war with Al-Abbas Ibn 'Abd Al-Muttalib who was a pagan that still did not accept Muhammad as a prophet
+It seems odd to use a pagan as his advocate when the claim is that Allah protects what is his and is working in the Umma (surely he did not need help from pagans)
+It does not appear that Muhammad tried to convert al-Abbas to Islam
+Muhammad begins to prepare the Umma for warfare by promising them rewards in return for the fight
+There are four kinds of economic rewards/gains
+- al-Ghanima (spoils of war)
+- al-Fay' (money gained from use of force or through peace treaties)
+- al-Nafl (the division of al-Ghanima)
+- al-Salb (items taken from those killed by the soldier)
+That last one is a well-known habit in the pre-Islmaic period Jahiliyya
+Martyrdom also served as a reward
+The community was mostly made up of weary, poor, and vulnerable people who had recently immigrated and were in need
+This ^ made the rewards much more powerful as motivation
+This also contributes to the regular disputes between the Muslim fighters over the war spoils
+
+
+## Lecture 13
+
+### The Battle of Badr (cont)
+
+Badr is a major Muslim victory
+It took place in Ramadan (the holiest month for Muslims)
+This victory is meant to show that Allah is at work amongst Muslims
+This battle also illustrates the shifting of power from Quraysh -> Medinan Umma
+Some useful sources: Musa Ibn 'Uqba 122-124; Ya 'Qubi 2:45; Ibn Hisham 2:714; Guillaume 289; Kala 'I 2:14
+Not really a defensive battle, as noted below
+The battle started because Muhammad heard that Abi Sufyan Ibn Harb was returning from Syria with a huge caravan of the Quraysh with a great portion of their wealth and only 30-40 soldiers
+Muhammd commissions a raid against the caravan in hopes that Allah will give it to them as Anfal (spoils of war)
+Some of the Muslims were hesitant to attack, because they thought a prophet of Allah would not start a war
+Also, some of the group being attacked were likely family members of the Umma attackers
+This is consistent with pre-Islamic raids, it does not seem that much has changed there
+Muhammad continues to encourage the attack, because the wealth to take is so much and there are so few soldiers
+Abu Sufyan did not seem to want to fight, changing the route of the caravan to avoid a war with Muhammad and the Umma
+Abu Sufyan also sent to Mecca for reinforcements to try and discourage attacks as well
+Muhammad seems to have seen this as an incredible opportunity to accomplish a significant victory over his enemies
+The Umma and Muhammd were very successful and even killed some of Muhammad's Meccan relatives
+
+#### Critical Analysis
+
+Because the details of the battle of Badr are plenty, the motivation does not seem to be the defensive war as is normally suggested
+It does not appear that Islam was truly spread at all during this conflict, apart from just destroying an enemy of Islam
+The Meccans themselves appear to have tried to avoid the war (rerouting and requesting reinforcements)
+This appears to be more about "revenge" than "self-defence"
+The writers who portray the battle of Badr often use heavily mystical elements to try and emphasize that Allah was behind this victory
+This seems to contrast heavily with normal life in the Umma, and seems to even make the rest of their life to seem less profound, which weakens the arguement
+e.g. Angels did the majority of the killing, rather than the Muslims, which counterbalances the idea that the Muslim fighters are really that strong
+It seems that the elements in the accounts are generally what the writers __wanted their people to hear__ rather than what actually happened
+Muhammad is portrayed as both brave and afraid (brave in fighting, afraid the Ansar will only support him in their territory), which is very contradictory
+There are also conflicting reports about where Muhammad was located during the battle, the front line, being protected by soldiers, or in his shading booth with Abu Bakr
+The details kept in the reports also says a lot about motivations
+The reports note that the blood of the Meccans (Muhammad's relatives) were up to Ali's armpits
+Why was this much bloobshed so necessary, and such a big deal? It seems to imply that the death of the enemies was the key of the battle
+(also, why was there so much blood!? They must have killed way more people than the 30-40 soldiers)
+These reports seem to imply that Muhammad was after the leadership of Mecca rather than spreading Islam
+There are also conflicting reports about Muhammad's knowledge and abilities
+Muhammad is given the suggestion to poison the wells in the area, he does not think of it himself, but it is implied that the location of the war is divinely inspired
+Given that the chief reason that was used to encourage the battle was wealth, it appears that most fighters fought solely for loot, rather than spreading Islam
+Ultimately the Battle of Badr appears to be a revenge battle that was motivated by a desire for wealth and crippling the enemies of Muhammad
+
+
