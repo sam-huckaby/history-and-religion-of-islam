@@ -90,4 +90,107 @@
 - This would bring the break with the prayer direction as well, as Allah would now change the Qibla to be towards Mecca instead of Jerusalem (around the battle of Badr)
 
 
+## Lecture 16
+
+### Breaking with the Jews
+
+#### (Banu) Qaynuqa
+- Before Uhud, Muhammad needed to take care of some of the Jews around Medina
+- Qaynuqa was reportedly (according to legend) the first to break their covenant with Muhammad
+- In response, Muhammad met them in their market and called them to Islam or suffer a fate worse than the Meccans in Badr
+- Qaynuqa refused, and said they were better fighters than the Meccans
+- Calling them to Islam then, was not the same as it is today. This is Muhammad calling them to submit to his leadership and become part of his community and affirm that Muhammad is a true prophet
+- Legend has it that a Jewish man lifted up an Arab woman's dress (insulting her) and so a Muslim man killed that Jewish man for insulting that Arab woman 
+- This sequence of events led to Muhammad ordering a raid of the tribe
+- But the problem is that the first murder in the sequence was a Muslim man murdering a Jewish man
+- The woman in the story is also only identified as an "Arab" not a "Muslim"
+- No family ties or a chain of transmission is present, which makes it seem very unlikely that this account is factual
+- Traditional accounts like this in Islamic texts are almost always much more documented
+- Another clue we have is that after Muhammad's forces overwhelm and capture the Jewish tribe and has them tied up, Muhammad still wants to kill them, even though they are no longer a threat
+- Later Muhammad would state (according to al-Tabari) that he was afraid of the Qaynuqa
+- A critical take on this situation is that possibly Muhammad's forces invented the situation with the Arab woman as a reason to start a war with this tribe they wanted to get rid of because they were afraid of them
+- It seems likely that the historical account here is written in a way to scare the enemeies of the Muslims in that time (on purpose)
+#### (Banu) Al-Nadir
+- Al-Tabari notes that in A.H. 4, "Muhammad expelled the sons of Nadir from their homes."
+- Took places after three events:
+- - Expelling of the Banu Qaynuqa
+- - The Massacre of the Ka'b ibn al-Ashraf
+- - The killing of Abu Rafi, the Jew
+- Possible reasons for getting rid of the Jews:
+- - The Jews may have presented a threat against his authenticity as a prophet
+- - The loss at Uhud might have left him in and desireous to redeem himself
+- Muhammad tells his companions that he had "news from heaven" that al-Nadir was planning to kill him by dropping a rock on his head
+- Muhammad then orders his people to prepare to fight the Jews
+- Muhammad then marches with an army and plunders the Jews and burns their palm trees, which was a slap in the face of the Jews
+- The Jews for their part surrendered and left their home with their gold, silver, and weapons
+- The Muslim account does not clearly state why the Jews were required to contribute blood-money (the thing that started Muhammad's conflict with al-Nadir)
+- Almost one year before this, Muhammad massacred Ka'b ibn al-Ashraf, the notable Jew whose mother is from this very tribe
+- This particular account does not really give any "spread of Islam" reasons. It seems almost exclusively motivated by politics and fears
+- It seems odd that Allah would not warn Muhammad about the plot to kill him before they were down with al-Nadir
+- How would al-Nadir have even tried to drop a rock on someone surrounded by his men?
+- Even knowing that Muhammd was marching towards them, al-Nadir still sought peaceful relations and refused to fight
+
+
+## Lecture 17
+
+### Breaking with the Jews (cont)
+
+#### (Banu) Qurayza
+- Muslim accounts call this "Ghazwat Bani Qurayza" (the raid of Banu Qurayza) but it seems more like a massacre
+- This takes place right after the Battle of the Trench
+- Gabriel instructs Muhammad to immediately march on Banu Qurayza
+- Muhammad and the Muslims "siezed" the tribe for nrealy 25 days (some accounts say a month)
+- This is basically a blockade or a seige, where their tent city is surrounded and prevented from leaving the area
+- This is pretty bad, because that's all of your livelihood, and it basically prevents them from going about their lives
+- "Allah cast terror into their hearts"
+- This Jewish group did not really do anything to the Muslims
+- Muhammad asks them if they will accept the ruling of one of their own
+- Muhammad selects Sa'd ibn Mu'adh to pass judgment on them, without telling them that this person had already converted to Islam and given his loyalty to Muhammad
+- The Jews agree, likely because they still don't understand what is happening here, because they do not appear to have done anything
+- Their guy (Sa'd) decrees that "The men should be killed, the property divided, and the women and children taken as captives."
+- Muhammad goes to the market and has several trenches dug and cut off the heads of all the Jewish men into those trenches
+#### Critical Analysis
+- This is difficult to hold in tension with the current trend of saying that Muhammad is the prophet of peace and tolerance
+- Muhammad then divides the spoils of this tribe and sells the captive women to buy horses and weapons
+- Muhammad did keep one of the Jewish women for himself, though she (Rayhana bint Zayd) refused to abandon Judaism for Islam
+- This raid creates problems for the argument that the early Muslim raids were exclusively for religious reasons (defense or proclaiming Islam)
+- Often it is suggested that this tribe broke faith with the Muslims
+- This is hard to use as a justification when you sell the women and children who never participated in any battles
+- There is no textual evidence that Muhammad offered the Qurayza a chance to convert to Islam
+- He also did not only kill men, but all males who had pubic hair, so even some teenage boys
+- the death toll ranges from as low as 600 to as high as 900 depending on the report
+- This appears to be more of a massacre
+
+#### Khaybar and Fadak
+- The situation with Khaybar illustrates that Muhammad had gained enough power to balance tensions with the Meccans and allowed him to focus more on eliminating the Jews in his region
+- Ibn Hisham and al-Tabari point out that Muhammad initiated the raid against Khaybar (obviously not for self-defense)
+- Al-Baladhuri states "Muhammad invaded Khaybar in the year 7"
+- Allegedly the chief of Khaybar's wife wanted a new husband and she really wanted Muhammad (the "king of the Hijaz")
+- Muhammad arrives at Khaybar and demands a hidden treasure of al-Nadir that the people of Khaybar say they know nothing about
+- Allegedly Muhammad's men then find the treasure somewhere and Muhammad commands the chief to be killed in as humiliating of a way as possible: they kindled a fire on Kinana's chest until he was nearly dead and then Muhammad bin Maslama struck off his head
+- After the killing of Kinana, his wife was given to Sofiyya
+- Evidently during this situation, some of the Muslim men raped pregnant Jewish women, which caused Muhammad to forbid that kind of thing
+- Muhammad then kept all of the possessions for himself
+#### Fadak
+- When Fadak heard of what happened, they gave up before Muhammad even arrived
+- Ibn Hisham writes that they asked for Muhammad to spare their lives and they would leave him their property, so he (Muhammad) did so
+- In this way, the last Jewish community in Arabia was given "entirely and completely" to Muhammad
+#### Critical Analysis
+- Both of these raids appear to be completely politically motivated
+- There is no evidence for religious reasons (no proclamation of Islam)
+- The Muslim warriors raping pregnant women and the chief of Khaybar's humilitating murder make any kind of religious values impossible
+
+#### The Conquest of Mecca
+- Appears in the Muslim accounts as a negotiated surrender
+- This happens because the Meccans apparently broke the treaty of Hudaybiyya
+- It appears that the Meccas did not truly attempt to break the treaty because they were aware of the growing power of the Muslims
+- Abu Sufyan, actually came to Muhammad to negotiate with him because he heard that there was talk they had broke the treaty
+- The treaty could have been kept, because Mecca was willing to do whatever necessary to maintain peace with the Muslims
+- Abu Sufyan converts to Islam during his dialog with Muhammad, admitting his submission to Muhammad
+- Abu Sufyan never is truly convinced of Muhammad's prophethood
+- Ibn Hisham has an account in the biography of Muhammad that states that Abu Sufyan still had "some doubt" about Muhammad's prophethood
+- Abu Sufyan's conversion meant that Mecca had lost its leader
+- This shows that the battle was over before it started
+- Abu Sufyan saw the power of the Muslim soldiers and was competely in awe/fear
+
 
