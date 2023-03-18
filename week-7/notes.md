@@ -103,3 +103,58 @@
 - Islam as we know it today has come to us largely through the Abbasid caliphate, and so we turn there next
 
 
+## Lecture 30
+
+### Abbasid Caliphate, Empire, or Dynasty (the third caliphate)
+- Arguably the most important caliphate of the first three, because almost all of what we know about Islam comes from this Caliphate
+- The Abbasid Dynasty is the second of the two great dynasties of the Muslim Empire of the Caliphate
+- It overthrew the Umayyad Caliphate in 750
+- It reigned until the Mongol invasion in 1258
+- Abu al Abbas (The Blood Shedder) the brutal forefather of the Abbasids
+- Al-Abbas is Muhammad's Uncle, much like Abu Talib (Ali's father) was
+- Much dispute within Islam is NOT Shiite/Sunni as much as it is a struggle within the same family for power
+- The Abbasids claimed the caliphate via their family relationship with Muhammad
+- The distinguished themselves from prior caliphates by claiming they were more Muslim (vs the Arab Kingdom of the Umayyads)
+- Abbasid leaders would give themselves new names, to point to how Allah was guiding and working in their individual lives
+- Starting around 718, members of the Abbas family began building support to gain control of the empire (especially from Shia Arabs and Persians)
+- Open revolt in 747 under the leadership of Abu Muslim ultimately led to the defeat of Marwan II
+- The first Abbasid Caliph al-Saffah replaced Marwan II in 749
+- The Surviving members of the Umayyad family fled to Spain where they ruled the Islamic West for the next six centuries
+- Abbasids controlled central and eastern Islamic lands
+- The Abbasids claimed to restore a truly Muslim government
+- They focused much more heavily on moving Eastward
+- They moved the capital to the new city of Baghdad
+- In Egypt, North Africa, Spain, and elsewhere, local dynasties began to claim caliphal status.
+- - This was local rulers who were sort of coming to power within the Abbasid dynasty
+- - This groups were under the umbrella of the Abbasid dynasty originally but they began to sort of break off to solidify their own local power
+- The Abbasid caliphate became more international, and it became more about being Muslim than being Arab
+
+### The Abbasids Rise
+- Pious Muslims supporters pushed the Abbasids to acknowledge the slowly refining Islamic law
+- 750-833 saw a rise in the Abbasid power
+
+### The Abbasids Decline
+- al-Mu'tasim began to introduce foreign (Berber, Slav, and Turkish) which were not originally Muslim (though they "converted")
+- This still began to shatter the unity built around a shared religion
+
+### The Abbasids
+- Some of the most famous caliphs in history were Abbasids (al-Rashid and al-Ma'mun)
+- Later practices that would become mainstream were founded in the Abbasid Dynasty, such as slave armies
+
+### The Golden Age (775-861)
+- The golden age was up until 833
+- This was when the power was being created and solidified
+- The capital moved from Damascus to Baghdad
+- This was done to be closer to Persia where the Mawali supporter base was located (those who helped overthrow the Umayyads)
+- Baghdad was centrally located between Europe and Asia and was important for trade
+- Scholars living in Baghdad translated Greek texts and made scientific discoveries
+- This is the period when most of our current Islamic religious writings were originally penned
+- This is when the Hadith, Sira, and Maghazi were written
+- Christians and Jews actually helped with the great translations from Greek to Arabic
+- Baghdad was a center for thinkers and philosophers
+- in 756, Al-Mansur sent some 4,000 Arab mercenaries to assist the Chinese Tang dynasty in the An Shi Rebellion against An Lushan
+- The Abbasides or "Black Flags" are noted in the Tang dynasty chronicles as the black robed Tazi (a persion term for Arab)
+- The Abbasids are usually connected with black flags while Shiites are connected with green flags
+- Al-Rashid sent embassies to China to help in war. They had a good relation with them.
+
+
