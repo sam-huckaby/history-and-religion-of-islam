@@ -158,3 +158,142 @@
 - Al-Rashid sent embassies to China to help in war. They had a good relation with them.
 
 
+## Lecture 31
+
+### Abbasid Caliphs
+- Taking a quick look at the early years of the Abbasid caliphate
+- This would be seen as "the golden age"
+
+#### Al-Mansur
+- Regnal Name = Made victorious by Allah
+- born as Abu Ja'far 'Abd Allah ibn Muhammad
+- All of these caliphs gave themselves regal names, to show themselves as divinely purposed to lead the Umma (Muslim community)
+- Born in Humaymah (today Jordan) in 709 and died during the hajj in Mecca 775
+- - Most important city of the Umayyads is Damascus
+- - Most important cities to the Shiites is Karbala and Kufa (more Kufa)
+- - Most important city for the Abbasids is Humaymah (where the Abbasid revolution started), though Baghdad is also important
+- Brother of al-Saffah
+- The second caliph of the Abbasid dynasty but often identified as the "real founder of the Abbasid dynasty"
+- Established the capital city of Baghdad
+- Umayyads killed al-Mansur's brother after being arrested at the end of their dynasty
+- He wiped out the last bits of Umayyad resistance
+- His main helper was Abu Muslim
+- Ultimately though, al-Mansur would kill Abu Muslim to consolidate power and remove a potential rival
+- He also put down the people of Khorasan and applied harsh treatment of the 'Alids
+- These were seen as "extremist supporters" of the Abbasids, and were gotten rid of to disassociate with them
+
+#### Al-Mahdi
+- The third Abbasid Caliph
+- reigned 775 to 785 (when he died)
+- His wife, the First Lady, al-Khayzuran was a former slave firl from Yemen and a woman of strong personality who greatly influenced political and social affairs of her husband
+- - She was his concubine (his favorite) and when he became Caliph she was freed and married him, against his first wife, the daughter of Caliph al-Saffah
+- - She also talked talked al-Mahdi out of letting his first wife's son from being the next Caliph
+- - When Mahdi died, Al-Hadi, Khayzuran's son became Caliph
+- - She was an ally of the Barmakids
+
+#### The Barmakids (Al-barmaika)
+- A priestly family of Iranian origin from Khorasan
+- Served as scribes and viziers to early Abbasid caliphs
+- their ancestor was a barmuk, a title borne by the high priest in the Buddhist temple
+- Very fond and supportive of literature, philosophy, and science
+- tolerant of various religious and philosophical issues
+- hated the Umayyads because they (Umayyads) conquered the native town of the Barmakids in 663, leading to a hatred towards Arabs
+- Their ancestor Khalid ibn Barmak served under al-Saffah for administering taxes
+- During the reign of al-Mansur, Khalid was appointed governor of Fars, but was later (in 775) dismissed because of political rivalry and Al-Madhi's wife helped him raise the money to pay his heavy fines
+- The Barmakids influence would only last 17 years though, and would be done by Caliph Harun
+- They fell because:
+- - Too much Influence in the court
+- - Enriched themselves (and were overly generous)
+- - Were too liberal toward other religious and political sects
+
+#### Al-Hadi
+- Reigned for two years (785-786)
+- Most importantly, he persecuted the 'Alids and Shiites
+- At this point, the religious distinctions of Shiites are beginning to form
+
+#### Harun al-Rashid
+- Honorific (regal name) = The one following the right path
+- Son of al-Mahdi and al-Khayzuran, grandson of al-Mansur
+- Fifth caliph of the Abbasid dynasty
+- Ruled Islam at the zenith of its Empire with a luxury in Baghdad that was memorialized in "The Thousand and One Nights" (The Arabian Nights Entertainment)
+- - Other stories come from this, like Aladdin and Ali Baba
+- - Shahrazad must hold the interest of her despotic husband the sultan with nightly tales, or she will be put to death in the morning
+- Because of al-Khayzuran influence, the Barmakids largely controlled the empire until 803
+- Harun would be the one to put a stop to the Barmakids control
+- Harun's reign was full of internal strife
+- - local revolts in Egypt, Syria, and Yemen (among other eastern provinces)
+- - Government was usually enough to quell these though
+- Harun's wife was also very influencial: Zubaydah
+- Zubaydah would only eat with gold/silver vessels studded with gems
+- Harun was a connoisseur of music and would give lavish gifts to outstanding musicians and poets
+- Harun ended up destroying the Barmakids, the group that mostly gave him all his power via their support
+- allegedly, Harun arranged for Ja'far the Barmakid to marry his sister as long as they did not consummate the marriage, but they fell in love, so he had Ja'far executed and his famliy imprisoned
+- Arabs and Persians (both Muslim groups) would often fight for power
+- Harun did not do a good job of sticking with one side or the other
+- the tension between the two grew and grew because Harun did not work to rectify it
+- This struggle woudl continue for at least 50 years
+- Harun would assign leadership to the East and West to different sons, in order to keep the regions separated because he recognized the problem
+- This would become a more obvious problem later
+
+
+## Lecture 32
+
+### Harun al-Rashid (continued)
+- He divided the empire between his two sons
+- - one (Al-Amin) was the son of the Arab princess Zubaydah and had an Arab tutor (al-Fadl ibn al-Rabi)
+- - the other (Al-Ma'mun) was a son of a Persian slave girl and had a Barmakid protege as a tutor
+- After his death, the two sons fought each other
+- Most of Harun's fame comes from the wealth and lavishness of his court
+- His wealth and lavish lifestyle are the stuff of Arabic legend
+- Al-Amin would succeed him as caliph, but his brother al-Ma'mun was not ready to give up power just yet
+- So for a time there were "two caliphs"
+
+### Al-Ma'mun
+- son of Harun al-Rashid
+- The seventh Abbasid caliph
+- reigned from 813-833
+- died August 833
+- Openly fought the scholars (Hadith writers) and imposed Mutazilism (see below)
+- - A vision within Islam that seeks to interpret Islam in what makes sense
+- - "The point is how to interpret Islam in a way that makes sense"
+- - "Is the Qur'an created? Sure? Maybe?"
+- - This is over and against the Hadith traditions
+- - Much more Greek in its philosophy
+- - Ultiamtely more about concentrating his power in religious matters
+- Was the son of an Iranian concubine
+- Was older than al-Amin
+- he recognized his brother as successor to the caliphate in Baghdad, but his brother (al-Amin) acknowledged his brother's almost absolute sovereignty over the easter provinces of the empire from his seat at Merv in Khorasan
+- Harun al-Rashid's death in March 809 created discord and armed conflict between the two brothers
+- Al-Ma'mun was stripped of his rights by al-Amin to be the next successor, and was thereafter supported by the Persians
+- Al-Ma'mun then stormed and destroyed his brother's caliphate, and al-Amin was killed (though supposedly against Al-Ma'mun's orders)
+- Attempted to impose Mu'tazili Doctrine
+- Decided in 833 to require all his subjects to adhere to Mu'tazilah
+
+#### The Mihna of the Abbasids - The Muslim Inquisition
+- Al-Ma'mun likely did not care about the religious differences that much, but would like to be the sole arbiter of religious discourse
+- A careful political move then is to impose the views that his opponents cannot agree with (Mu'tazilah) in order to begin fighting them
+- SIDE NOTE: It seems odd to believe that the Qur'an is uncreated, because that appears to be a secodn god, which is polytheism
+- NOT REALLY A SIDE NOTE: The issue of the Qur'an being uncreated was a key point in the Mu'tazilah debate
+- During the second caliph, much of the writings of Muhammad's traditions came into being
+- this explains the rise of power of the Ulama (the religious scholars)
+- This in turn was a threat to the caliphs' power
+- The Mihna showed that the Caliphs were not willing to give power to the scholars, no matter how much they said they are "religious caliphs"
+- The inquisition (Mihna) was then used to give a theological test to kill those in opposition to the caliphs
+- The person being judged would need to admit that the Qur'an was created at some point and agree with the Mu'tazilah
+- Ultimately the Mihna would fail after three caliphates
+- this failure would propel the Ulama into more power as it proved that they (not the caliphs) were the principle religious authority in Islam
+- Ultimately the Mihna served to simply affirm the religious leadership within the Umma
+- This also refelcts the struggle that non-Muslims were entering into when they were being forced to convert to Islam at this time
+- The Mihna does have general scholarly concensus around the fact that it reflects a Sunni/Shiite struggle
+- - On the one hand Al-Ma'mun was working to reconcile the Shiites to the Abbasids by taking on the title of Imam, and declaring Ali the second-in-rank after Muhammad
+- - on the other hand, al-Mutawakkil (who ended the Mihna) appears to have realized the importance of the Ulama and their crucial role in advancing the knowledge of Muhammad's sunna
+- - - he would also abandon the Shiite movement and give gifts to the scholars and demand that hadith be recited that condemn the Mutazilite doctrines
+- - - he also demolished the shrine of al-Hussayn in Karbala
+- We see the Qur'an's createdness is a key point of discussion in the texts from this era
+- We also see that Shiite and Sunni fighting influenced the writings from this period greatly (and should be watched for when reading things from this period)
+- Post-Mihna would increase persecution on non-Muslims because they became under greater subjection to the Ullama
+- The Ulama sought to enforce a strict code of law, unlike the Caliphs
+- The culmination of this stricter application of the Islamic laws would reach their peak with the Pact of Umar
+- At this point the Ulama were no longer just the authority on religion, but in some cases it appears they became the AUTHORS of religious tenants themselves
+
+
