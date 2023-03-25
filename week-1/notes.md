@@ -70,7 +70,7 @@ How should Christians go about studying Islam (part 2)
 - The Critical Approach
 - - how Islam is studied in the academy
 - - "There is no evidence for Muhammad, so Muhammad never existed probably" -example
-- - An example, Patricia Crony, argues that the bulk of Islamic history is debris of an obliterated past
+- - An example, Patricia Crone, argues that the bulk of Islamic history is debris of an obliterated past
 - - She argues that the real history of Muhammad is unreachable, and cannot be known
 - - This is a point worth noting because the foudnational sources we have about Muhammad and his life come from 200 years after his life
 - - (This is not including footnotes in history that briefly mention his name or an Arabian conquerer)
